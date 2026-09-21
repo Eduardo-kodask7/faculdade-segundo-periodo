@@ -1,1 +1,0 @@
-# faculdade-segundo-periodo
